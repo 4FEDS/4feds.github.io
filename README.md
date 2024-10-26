@@ -1,4 +1,4 @@
-                                                                                                        @FEDERALC ON DISCORD 
-                                                                                                           burn all faggot
-                                                                                                              kill them
-                                                                                                                 lol
+            @FEDERALC ON DISCORD 
+               burn all faggots
+                kill them                           
+                   lol
