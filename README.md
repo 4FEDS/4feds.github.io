@@ -1,1 +1,4 @@
-# 4FEDS.github.io
+                                                                                                        @FEDERALC ON DISCORD 
+                                                                                                           burn all faggot
+                                                                                                              kill them
+                                                                                                                 lol
