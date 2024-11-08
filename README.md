@@ -2,3 +2,7 @@
                                             burn all faggots             rape jewish niggas
                                                 kill them                      leave them
                                                   lol.                            dead.
+                                                             paula smells
+                                                                joking
+                                                             te amo paula
+                                     
