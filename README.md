@@ -1,8 +1,15 @@
-                                           @FEDERALC ON DISCORD  ///  XQ0U-BLEEDOUT ON DISCORD
-                                            burn all faggots             rape jewish niggas
-                                                kill them                      leave them
-                                                  lol.                            dead.
-                                                             paula smells
-                                                                joking
-                                                             te amo paula
-                                     
+                                                               @bleedingss. 
+                                                                   on
+                                                                 discord          
+
+                                                AUDREY IS A ROTTEN NIGGER!
+                                                                             Jokes i love her lol
+
+                                                        @harmless        @skid                 @accused
+
+                                                        @larp 
+
+                                                        @dork
+                                                                 @harmful       @False
+                                                                       
+                                                                  
